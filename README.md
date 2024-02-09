@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shashank-soni
-- 👀 I’m interested in cosmology and theoretical physics
+- 👀 I’m interested in cosmology, astronomy and theoretical physics
 - 🌱 I’m currently learning the physics, math and other skills required for the above
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me ...
